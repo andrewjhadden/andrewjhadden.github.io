@@ -1,1 +1,0 @@
-# andrewjhadden.github.io
